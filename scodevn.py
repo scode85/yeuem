@@ -1,4 +1,3 @@
-#Mã hóa bởi admin: Nguyễn Văn Đạt (https://zalo.me/g/nexigi855)  
 😈😌😏😎😑😓 😓😇😑😄😀😃😈😍😆
 😈😌😏😎😑😓 😁😀😒😄➅➃
 😈😌😏😎😑😓 😎😒
